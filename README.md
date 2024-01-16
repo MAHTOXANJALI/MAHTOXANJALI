@@ -7,7 +7,7 @@
 [<img src="https://github.com/MAHTOXANJALI/MAHTOANJALI/blob/master/resources/hr.gif"/>](https://github.com/MAHTOXANJALI)
 
 <p align="center">
-<img src="[https://te.legra.ph/file/3e2dabed4c479e0842cdf.jpg](https://te.legra.ph/file/3e2dabed4c479e0842cdf.jpg)">
+<img src="https://te.legra.ph/file/3e2dabed4c479e0842cdf.jpg">
 </p>
 
 [<img src="https://raw.githubusercontent.com/MAHTOXANJALI/MAHTOANJALI/master/resources/hr.gif"/>](https://github.com/MAHTOXANJALI)
