@@ -1,3 +1,22 @@
+![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗪𝗘𝗟𝗖𝗢𝗠+𝗧𝗢+𝗠𝗔𝗛𝗧𝗢+𝗔𝗡𝗝𝗔𝗟𝗜+𝗚𝗶𝘁𝗛𝘂𝗯!;𝗜+𝗔𝗺+𝗠𝘀+𝗔𝗡𝗝𝗔𝗟𝗜+𝗧𝗚!;𝗜+𝗔𝗺+𝗝𝘂𝘀𝘁+𝗧𝗲𝗹𝗲𝗴𝗿𝗮𝗺+𝗕𝗼𝘁+𝗠𝗮𝗸𝗲𝗿!)</p>
+<p align="center">
+
+
+
+<p align="left">
+𝗠𝗬 𝗣𝗥𝗢𝗙𝗜𝗟𝗘
+<p align="left">
+• 𝙼𝚢 𝙽𝚊𝚖𝚎 : 𝙼𝙰𝙷𝚃𝙾 𝙰𝙽𝙹𝙰𝙻𝙸 😉
+<p align="left">
+• 𝙰𝚐𝚎 : 19
+<p align="left">
+• 𝙿𝚕𝚊𝚌𝚎 : 𝙹𝙷𝙰𝚁𝙺𝙷𝙰𝙽𝙳
+<p align="left">
+• 𝙻𝚊𝚗𝚐𝚞𝚊𝚐𝚎 : 𝙺𝙷𝙾𝚁𝚃𝙷𝙰
+<p align="left">
+• 𝚆𝚘𝚛𝚔 : 𝚂𝚝𝚞𝚍𝚢 𝙸𝚗 𝚍𝚎𝚐𝚛𝚎𝚎 2 𝚢𝚎𝚊𝚛
+<p align="left">
+- 𝙼𝚘𝚜𝚝 𝙰𝚌𝚝𝚒𝚟𝚎 𝙾𝚗 𝚃𝙴𝙻𝙴𝙶𝚁𝙰𝙼 🔥
 <h1> <img src="https://te.legra.ph/file/3e2dabed4c479e0842cdf.jpg" height="90px" width="80px"> ʜᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs ᴍᴀʜᴛᴏ ᴀɴᴊᴀʟɪ</h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
